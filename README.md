@@ -1,1 +1,1 @@
-[🖇](https://idkbuster40.github.io/index.html)
+[🔗](https://idkbuster40.github.io/index.html)
