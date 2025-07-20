@@ -1,1 +1,1 @@
-[🔗](https://idkbuster40.github.io/index.html)
+[🔗](https://1consequential.github.io/index.html)
